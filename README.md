@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SerP1977
+- 👀 I’m interested in cryptocurrencies and various crypto projects
+- 🌱 I’m currently learning work with cryptocurrencies
+- 💞️ I’m looking to collaborate on earnings on cryptocurrency.
